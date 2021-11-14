@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Peter-Johnan.
+- 👀 I’m interested in badminton and computer games.
+- 🌱 I’m currently learning Electronic Information Engineering.
+- 💞️ I’m looking to collaborate on everybody.
